@@ -1,0 +1,1 @@
+This website isn't serious and doesn't try to introduce me to you. It doesn't exactly depict my skills while it also says that I'm technically aware of web development. But despite that, this website was made primarily for enternaining purposes only.
